@@ -68,7 +68,9 @@ Romane A. Camus pabrėžia, kad absurdo žmogumi negimstama, juo tampama – Mer
 
 ### Kiti veikėjai
 
-Reimonas Sentesas — toks  jo  vardas — yra  nedidelio  ūgio, plačių pečių,  boksininko nosimi.  Jis visuomet labai  tvarkingai apsirengęs
+Reimonas Sentesas - toks jo vardas - yra nedidelio ūgio, plačių pečių, boksininko nosimi. Jis visuomet labai tvarkingai apsirengęs. Kerštingas, lengvabūdis, paslaptingas.
+
+Mari Impulsyvi, meniška, jautri, linksma. Įsimylėjusi Merso.
 
 Lipdamas tamsiais laiptais susidūriau su savo kaimynu seniu Salamano. Jis vedėsi šunį. Jau aštuoneri metai, kai jie nesiskiria. Spanielis serga kažkokia odos liga, atrodo, raudonąja, nuo kurios nusišėrę visi plaukai, o oda aptekusi dėmėm ir šašais. Gyvendami vieni du mažame kambarėlyje, senis Salamano ir šuo supanašėjo. Senio veide taip pat atsirado rausvų šašų, plaukai pagelto ir išretėjo. O šuo perėmė šeimininko eiseną: risnoja susikūprinęs, ištiesęs kaklą ir atkišęs snukį. Jie abu, regis, tos pačios veislės, tačiau neapkenčia viens kito. senis nelaimingas žmogus, bet kas žino, kaip ten iš tikro yra. Kai juos sutikau ant laiptų, Salamano kaip tik plūdo šunį. „Nususėli tu! Dvėsena!“ — šaukė senis, o šuo inkštė. „Labas vakaras“,— pasakiau, bet senis barėsi toliau.
 
